@@ -28,3 +28,4 @@ victoria.pacheco@escola.pr.gov.br
 
 ![](https://media.tenor.com/mNg8W00ioAIAAAAC/osaki-nana-eyes.gif)
 
+![nana](https://github.com/vikkk24/vikkk24/assets/146108301/ad9e4f12-493b-44a7-997d-d590ad1d4802)
